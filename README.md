@@ -1,2 +1,2 @@
 # MarkHops.github.io
-GitHub pages siite!
+GitHub pages siite! Thanks for visiting!
